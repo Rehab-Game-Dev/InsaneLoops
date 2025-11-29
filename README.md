@@ -21,18 +21,4 @@ Demo in itch.io website:
 https://yarinkash1.itch.io/insane-loops-demo
 
 
-youtube video for assignment 1:
-
-
-
-youtube video for assignment 2:
-
-
-
-youtube video for assignment 3:
-
-
-
-youtube video for assignment 4:
-
 
